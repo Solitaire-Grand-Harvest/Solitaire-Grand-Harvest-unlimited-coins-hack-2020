@@ -1,0 +1,1 @@
+# Solitaire-Grand-Harvest-unlimited-coins-hack-2020
